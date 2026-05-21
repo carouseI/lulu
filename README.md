@@ -1,23 +1,15 @@
-<p align="center"><img width="321" height="140" alt="inkpx-word-art" src="https://github.com/user-attachments/assets/174108b9-546a-4cf4-acb3-235ad9a5dfb4" />
 
-<p align="center"><img width="340" height="120" alt="inkpx-word-art (1)" src="https://github.com/user-attachments/assets/9e58db24-b618-4a06-a214-856b11f27256" />
+⌖<p align="center">![](https://komarev.com/ghpvc/?username=avenueq&color=ffff63&style=plastic&label=fortniters&base=2200)
 
-
-
-<p align="center"><img width="300" height="300" alt="9c05115583301d2315fc13bbeac20177" src="https://github.com/user-attachments/assets/b5543a67-dbbb-46b1-8f6c-f65116b14f80" />
-
-<p align="center"><code style="color=fab6b6">𝓐𝗏𝖾𝗇
-
-<p align="center"> 𝓼𝓲𝓰𝓷 𝓪𝓽𝓪𝓫𝓸𝓸𝓴 ♥+♥ 𝖘𝖙𝖗𝖆𝖜𝖕𝖆𝖌𝖊
+<p align="center">𝕲𝖎𝖋𝖙 𝖒𝖊 𝖘𝖆𝖋𝖋 𝖘𝖐𝖎𝖓𝖘 𝖕𝖑𝖊𝖆𝖘𝖊
 
 
-![](https://komarev.com/ghpvc/?username=avenueq&color=fcdede&style=plastic&label=♡cuties♡&base=2200)
+<p align="center"><img width="250" height="472" alt="Saff_-_Survey_-_Fortnite" src="https://github.com/user-attachments/assets/72ef96a1-62f9-40c4-afba-739bb9751cfb" />
 
-<p align="center"><img width="100" height="100" alt="96320db7bd6ab9ab73e6defce973ab8e" src="https://github.com/user-attachments/assets/d5d85ad5-fa1c-4744-96d1-f7c5df2f4ddf" />
+<p align="center"><img width="100" height="100" alt="source" src="https://github.com/user-attachments/assets/35cd0b89-c173-406c-a4f5-10ac26bcbe0a" />
 
 
-<img width="150" height="100" alt="inkpx-word-art (2)" src="https://github.com/user-attachments/assets/ae316ec1-ba34-40f2-b82e-d7194e266084" />
-
+<p align="center"><img width="400" height="200" alt="f0c72e13b7a42c4" src="https://github.com/user-attachments/assets/dda35d51-b96f-4717-a1fb-1d875a5f86b6" />
 
 
 
